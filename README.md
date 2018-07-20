@@ -1,2 +1,2 @@
 # HelloWorld
-初入GH，请多指教
+i am a newbie softwara engineer,that project is just for learn github, emmm...what else ?i have a new gf? that text is some embarrased...
